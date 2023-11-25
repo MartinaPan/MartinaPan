@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Martina Pan
+- 👀 I’m interested in cooking, baking, working out and designing !!
+- 🌱 I’m currently learning C
+- 📫 How to reach me @Martinapanon@gmail.com or @martinasxw on instagram !. 
